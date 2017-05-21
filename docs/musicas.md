@@ -16,7 +16,7 @@
 
 ## Músicas preferidas de CrizanOliveira110
 
-* Musica 01 
-* Musica 02
-* Musica 03
-* Musica 04
+* Sunday Bloody Sunday
+* Shadowns and Tall Trees 
+* Iris (Hold Me Close)
+* One
