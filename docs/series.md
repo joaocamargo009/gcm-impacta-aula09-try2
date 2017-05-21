@@ -9,7 +9,7 @@
 
 ## Evair Paulino
 
-* Serie 01
-* Serie 02
-* Serie 03
-* Serie 04
+* Walking Dead
+* Dallas
+* Super Boy
+* Sex and the City
