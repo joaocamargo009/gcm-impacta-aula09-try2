@@ -13,3 +13,10 @@
 * Game 02
 * Game 03
 * Game 04
+
+## Crizan Oliveira
+
+* Pro Evolution Soccer
+* Medal of Honor
+* Need for Speed
+* Call of Duty
