@@ -13,3 +13,10 @@
 * Serie 02
 * Serie 03
 * Serie 04
+
+## Crizan Cezar
+
+* Lost
+* Anos Incríveis
+* Friends
+* Dallas
