@@ -9,10 +9,10 @@
 
 ## Evair Paulino
 
-* Game 01
-* Game 02
-* Game 03
-* Game 04
+* FIFA
+* Need for Speed
+* Metal Gear
+* GTA V
 
 ## Crizan Oliveira
 
