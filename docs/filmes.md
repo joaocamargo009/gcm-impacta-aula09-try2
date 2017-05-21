@@ -16,7 +16,7 @@
 
 ## Filmes preferidos de CrizanOliveira110
 
-* Filme 01
-* Filme 02
-* Filme 03
-* Filme 04
+* A ano em que meus pais sairam de férias 
+* O grande dragão branco
+* Forrest Gump
+* O resgate do soldado Ryan
