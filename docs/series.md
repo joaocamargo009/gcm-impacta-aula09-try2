@@ -13,3 +13,10 @@
 * Dallas
 * Super Boy
 * Sex and the City
+
+## Crizan Cezar
+
+* Lost
+* Anos Incríveis
+* Friends
+* Dallas
